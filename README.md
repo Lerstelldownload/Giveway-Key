@@ -1,2 +1,0 @@
-# Giveway-Key
-Giveway Key
